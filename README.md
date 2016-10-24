@@ -1,3 +1,3 @@
 # hello-world
 Newbie
-longo here. I like long walks on the beach and a good movie.
+longo here. looking to get into the technology feild and trying to learn new skills along the way.
